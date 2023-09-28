@@ -1,1 +1,2 @@
-hello from article 1
+# Lifestyle
+I want to improve my lifestyle and better myself. This will include going to the gym more consistently, with going to the gym I want to have a more structured plan on what to do and what my goals are for my body. I also want to make sure I start eating better and make sure I am eating in a caloric deficit. This would include tracking my calories and making sure im meeting my macro goals as well. I also want to make sure i start dressing better everyday and that would include buying new clothes that I would enjoy to wear and feel comfortable in. 
